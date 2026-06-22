@@ -132,7 +132,7 @@ Certifications
 
 Connect With Me
 
-* LinkedIn: https://linkedin.com/in/sk-santhosh
+* LinkedIn: https://linkedin.com/in/sk-santhosh-j
 * Website: https://sk-santhosh.info
 * Email: santhoshj.off@gmail.com
 
